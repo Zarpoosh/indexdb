@@ -3,3 +3,6 @@ My blog in virgool is [google bard]([https://virgool.io/@alirezadigi](https://ba
 
 😀
 linkedin: https://www.linkedin.com/groups/12869559/
+
+
+### minoo
